@@ -1,6 +1,6 @@
 # Sikkim Game - Sikkim Game Login, Sikkim Game Sign Up, Sikkim Game Register Now
 
-# 👉 [Join Sikkim Game Now](https://www.google.com)
+# 👉 [Join Sikkim Game Now](https://www.sikkim11.com/#/register?invitationCode=316164149930)
 
 The **Sikkim Game** has become a popular choice among gaming enthusiasts, offering a seamless blend of excitement and entertainment. Whether you are a beginner or a seasoned player, Sikkim Game provides an engaging platform to explore your gaming potential. In this article, we will guide you through the process of Sikkim Game login, sign-up, and registration to help you get started on your gaming journey.
 
@@ -16,8 +16,8 @@ Sikkim Game is an online gaming platform that offers a variety of games to cater
 - **Exciting Rewards:** Regular bonuses, promotions, and prizes for players.
 - **24/7 Support:** Dedicated customer support to address your queries.
 
-# 👉 [Join Sikkim Game Now](https://www.google.com)
-# 👉 [Join Sikkim Game Now](https://www.google.com)
+# 👉 [Join Sikkim Game Now](https://www.sikkim11.com/#/register?invitationCode=316164149930)
+# 👉 [Join Sikkim Game Now](https://www.sikkim11.com/#/register?invitationCode=316164149930)
 
 ## How to Sign Up for Sikkim Game
 
